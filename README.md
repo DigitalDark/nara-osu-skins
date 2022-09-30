@@ -1,6 +1,7 @@
 # nara-osu-skins
-Nara's osu!skins archive :D. Skins sorted from newest to oldest. 
+Nara's osu!skins archive :D
 
+#### SKINS ARE SORTED FROM NEWEST TO OLDEST
 -------------------------------------------------
 
 Please, if you find other verion of nara's skin thats not listed here, dm me on discord so i can upload and add it here!
