@@ -12,6 +12,9 @@ Your Living Nightmare#2368
 6.6 - https://www.mediafire.com/file/130vykjby4o5r79/Nara+&+6.6.osk/file
 ![screenshot165](https://user-images.githubusercontent.com/84919892/193338429-d8642636-81f4-42ac-b5e3-c2b4f5544620.jpg)
 
+6.5 (tysm for the skin baron6060) - https://b.catgirlsare.sexy/lqT1Bqe-QcBu.osk
+![screenshot167](https://media.discordapp.net/attachments/884519544121618465/1025522463238529126/1664573995499.jpg)
+
 6.4 - https://www.mediafire.com/file/6a0hosbpy23ekfj/Nara+&+6.4+Saekano.osk/file
 ![screenshot166](https://user-images.githubusercontent.com/84919892/193339788-aef68f97-05ee-460c-b16b-5a41870e5bf9.jpg)
 
