@@ -26,3 +26,12 @@ Your Living Nightmare#2368
 
 5.3 - https://www.mediafire.com/file/954hb5vs9hxk0a5/Nara_5.3.osk/file
 ![screenshot173](https://user-images.githubusercontent.com/84919892/193340811-9cb76f7a-2d01-4d9b-afeb-fb3e56d3d94c.jpg)
+
+5.0 - https://www.mediafire.com/file/nfbmz8c7kulu5gy/Nara_5.0.osk/file
+![screenshot318](https://user-images.githubusercontent.com/84919892/193341010-829f07e7-30b6-42ee-beef-29b4bf1b06bd.jpg)
+
+4.7 - https://www.mediafire.com/file/60qqz0gmbkvgq14/Nara_%2526_4.7.osk/file
+![screenshot176](https://user-images.githubusercontent.com/84919892/193341291-7e263d8e-f3b2-4811-958b-1077e96e23cf.jpg)
+
+3.5 - https://www.mediafire.com/file/1iw8kr7k4tw6voq/Nara_%2526_3.5.osk/file
+![screenshot178](https://user-images.githubusercontent.com/84919892/193341451-7e100e0c-fee4-4c69-bd8f-f89e1ac15daa.jpg)
