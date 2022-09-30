@@ -1,5 +1,5 @@
 # nara-osu-skins
-Nara's osu!skins archive :D. Skins sorted from newest to oldest.
+Nara's osu!skins archive :D. Skins sorted from newest to oldest. 
 
 -------------------------------------------------
 
