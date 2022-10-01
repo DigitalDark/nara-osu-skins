@@ -9,6 +9,9 @@ Your Living Nightmare#2368
 
 -------------------------------------------------
 
+6.6 instafade - https://www.mediafire.com/file/3mh4n1k71m7lnxg/Nara+6.6+instafade.osk/file
+![screenshot192](https://user-images.githubusercontent.com/84919892/193411734-cd556b58-7d06-47b0-b7ef-8f72030aeaec.jpg)
+
 6.6 - https://www.mediafire.com/file/130vykjby4o5r79/Nara+&+6.6.osk/file
 ![screenshot165](https://user-images.githubusercontent.com/84919892/193338429-d8642636-81f4-42ac-b5e3-c2b4f5544620.jpg)
 
